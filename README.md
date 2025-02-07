@@ -1,0 +1,1 @@
+# projectKundelik.kz
